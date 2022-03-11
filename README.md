@@ -1,0 +1,2 @@
+# calismam
+kendi çalışmam
